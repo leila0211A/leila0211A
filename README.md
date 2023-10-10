@@ -2,18 +2,18 @@
 
 
 
-_Sou a Leila.
+Sou a Leila.
 
 
-*𝓣𝓮𝓷𝓱𝓸 16 𝓪𝓷𝓸𝓼
+𝓣𝓮𝓷𝓱𝓸 16 𝓪𝓷𝓸𝓼
 
 
--**Estou a estudar**
+**Estou a estudar**
 
 
-`-Não sei mexer nisso direito`
+`Não sei mexer nisso direito`
 
 
--𝓜𝓔 𝓢𝓘𝓖𝓐𝓜 𝓝𝓞 𝓘𝓝𝓢𝓣𝓐 **@leilaa_crp**
+𝓜𝓔 𝓢𝓘𝓖𝓐𝓜 𝓝𝓞 𝓘𝓝𝓢𝓣𝓐 **@leilaa_crp**
 
  
