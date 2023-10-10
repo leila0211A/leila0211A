@@ -16,5 +16,6 @@ Não sei mexer nisso direito`
 
 𝓜𝓔 𝓢𝓘𝓖𝓐𝓜 𝓝𝓞 𝓘𝓝𝓢𝓣𝓐 **@leilaa_crp**
 
- 
-https://media.tenor.com/CA0GtrBCmLAAAAAC/sinal-da.gif
+
+ ![](https://media.tenor.com/CA0GtrBCmLAAAAAC/sinal-da.gif
+)
